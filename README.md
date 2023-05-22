@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Christian25692 😁!!
+## Bem-vindo(a) ao perfil do Christian25692 😁
 
  <div>
    <a href="https://github.com/christian25692">
